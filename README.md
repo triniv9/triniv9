@@ -15,7 +15,6 @@ About me:
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about 
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: ...
 
 <br><br>
 📧 Mail : trinidad.cvs02@gmail.com
