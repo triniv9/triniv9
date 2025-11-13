@@ -16,7 +16,8 @@
 - 😄 Pronouns: she/her-->
 
 <br><br>
-📧 Mail : trinidad.cvs02@gmail.com
+📧 Mail: trinidad.cvs02@gmail.com
+Linkedin: linkedin.com/in/trinidad-valenzuela-silva/
 
 </div><br>
 
