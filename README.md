@@ -17,6 +17,7 @@
 
 <br><br>
 📧 Mail: trinidad.cvs02@gmail.com
+<br>
 Linkedin: linkedin.com/in/trinidad-valenzuela-silva/
 
 </div><br>
